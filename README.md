@@ -6,3 +6,4 @@ Sou aluno do colégio estadual do campo maralúcia, estou na aula de Pensamento 
 1 ano do ensino médio
 tenho 15 anos
 PALMEIRENSE DE CORAÇÃO 
+insta: branreinhardt_
