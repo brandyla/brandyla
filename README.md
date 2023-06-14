@@ -7,3 +7,4 @@ Sou aluno do colégio estadual do campo maralúcia, estou na aula de Pensamento 
 tenho 15 anos
 PALMEIRENSE DE CORAÇÃO 
 insta: branreinhardt_
+HANDEBOLISTA
